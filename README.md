@@ -1,1 +1,1 @@
-Snitch nigga
+Shni shna shnappi
